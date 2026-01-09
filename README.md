@@ -1,1 +1,0 @@
-# aimlmid2026_m_karukhnishvili25
